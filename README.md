@@ -1,2 +1,1 @@
-# Sprint-4
-Sprint 4
+PRESENTACION DE LA EXPLICACIÓN DE LA APLICACIÓN: https://www.canva.com/design/DAG6Np3RdxU/iIFGOgQSYAPnvvxhWPFTWA/edit
